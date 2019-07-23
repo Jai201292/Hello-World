@@ -1,1 +1,1 @@
-Hello this is jaiprakash. trinity mobile app lab private limited. Vasundhara
+Hello this is jaiprakash. trinity mobile app lab pvt ldt. Vasundhara
